@@ -1,5 +1,3 @@
-Here you can say lots of fun things about your site.
+My name is Ben, and I love Love Live, eventing, anime, and lots more. Thanks for stopping by!
 
-Maybe say a some things about yourself.
-
-Or maybe what you plan to blog about.
+This blog is just a place for me to put my various writings about my hobbies. I mostly write this stuff for myself, but if others want to read my thoughts, this is what this blog is for.
